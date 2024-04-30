@@ -14,7 +14,6 @@ Here will be an entire list of Mangas and Sources for them.
 - [Monologue Woven For You/Kimi ni Tsumugu Bouhaku - MangaBuddy](https://mangabuddy.com/kimi-ni-tsumugu-bouhaku)
 - [Can't Defy the Lonely Girl](https://dynasty-scans.com/series/cant_defy_the_lonely_girl)
 - [Convenient Semi-Friend](https://mangabuddy.com/convenient-semi-friend) 
- <!-- https://dynasty-scans.com/series/convenient_semi_friend -->
 - [Hino-san no Baka](https://dynasty-scans.com/series/hino_san_no_baka)
 - [Bloom Into You](https://dynasty-scans.com/series/bloom_into_you)
 - [I See You, Aizawa-san!](https://dynasty-scans.com/series/i_see_you_aizawa_san)
@@ -29,7 +28,26 @@ Here will be an entire list of Mangas and Sources for them.
 - [The Moon on a Rainy Night](https://mangabuddy.com/the-moon-on-a-rainy-night)
 - [The Two Sides of Seiyuu Radio](https://mangabuddy.com/the-two-sides-of-seiyuu-radio)
 - [There's No Way I Can Have A Lover! *Or Maybe There Is?](https://mangabuddy.com/theres-no-way-i-can-have-a-lover-or-maybe-there-is)
-- [Guanyu Bei Banshang Lücha Weixie Na Jian Shi]()
+- [That Time I Was Blackmailed by the Class’s Green Tea Bitch](https://mangabuddy.com/that-time-i-was-blackmailed-by-the-classs-green-tea-bitch)
+- [Tamen De Gushi](https://mangabuddy.com/tamen-de-gushi)
+- [My Girlfriend is A Gamer!!](https://mangabuddy.com/my-girlfriend-is-a-gamer)
+- [Baili Jin Among Mortals](https://mangabuddy.com/baili-jin-among-mortals)
+- [This is Obviously a Yuri Manhua](https://mangabuddy.com/this-is-obviously-a-yuri-manhua)
+- [Sasayaku You ni Koi wo Utau](https://dynasty-scans.com/series/whispering_you_a_love_song)
+- [Sora & Haena!](https://manhuascan.io/manga/19546-sora-amp-haena)
+<!-- - []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []()
+- []() -->
+
 
 ## Drama Series and Sources
 - [23.5](https://kissasian.lu/Drama/23-5)
+
+
+
+ <!-- https://dynasty-scans.com/series/convenient_semi_friend -->
