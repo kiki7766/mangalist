@@ -69,9 +69,9 @@ Here will be an entire list of Mangas and Sources for them.
 - [Sora & Haena!](https://manhuascan.io/manga/19546-sora-amp-haena) 
     * 89 Chapters
 <!-- - []()
-- []()
-- []()
-- []()
+- [Whisper Me a Love Song]()
+- [There's No Freaking Way I'll be Your Lover! Unless...]()
+- [Sheep Princess in Wolf’s Clothing]()
 - []()
 - []()
 - []()
