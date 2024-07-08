@@ -6,7 +6,7 @@ Here will be an entire list of Mangas and Sources for them.
 
 | Title | Description | Chapters Read |
 | ----------- | ----------- | -----------|
-| [Love Thy Neighbor](https://mangabuddy.com/love-thy-neighbor) | Young College Student and a lonely Middle Age Woman  | - [x] 65 Chapters|
+| [Love Thy Neighbor](https://mangabuddy.com/love-thy-neighbor) | Young College Student and a lonely Middle Age Woman  | -[x] 65 Chapters|
 | [Kiyota-San Wa Yogosaretai](https://mangabuddy.com/kiyota-san-wa-yogosaretai) | Sumiko Kiyota is a plain, ordinary girl with a serious demeanor. While eating lunch alone as usual, Yuki Shirakawa, the most beautiful and popular girl in class, calls out to her...? | - [x] 13 Chapters |
 | [Perfect Heroine Wants to Possess Me](https://mangabuddy.com/perfect-heroine-wants-to-possess-me)| Ji Xiao accidentally transmigrates into a novel and becomes the Alpha villain who shares the same name as her. To save her life from disaster, she treats the perfect Omega heroine with the upmost care. |  - [x] 58 Chapters|
 |[Yoru no Kurage wa Oyogenai - Jellyfish Can’t Swim in the Night](https://mangabuddy.com/yoru-no-kurage-wa-oyogenai)| Four girls, an illustrator, a former idol, a VTuber, and a composer, form an anonymous artist group called "JELEE", each pursuing their artistic dreams while supporting one another.| - [x] 3 Chapters|
