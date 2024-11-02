@@ -58,7 +58,7 @@ Here will be an entire list of Mangas and Sources for them.
 |[Sweet Home](https://myflixerz.to/tv/sweet-home-66340)|As humans turn into savage monsters and the world plunges into terror, a handful of survivors fight for their lives — and to hold on to their humanity.| S3 Episode 8|
 |[Love is for sucker](https://myflixerz.to/tv/love-is-for-suckers-88984)|Goo Yeo Reum (Lee Da Hee), a dedicated TV producer, is struggling to find success despite her hard work. Her luck changes when she’s chosen to produce a new dating reality show, “Kingdom of Love.” Her best friend and neighbor of twenty years, Park Jae Hoon (Choi Si Won), has given up on love and only seeks casual relationships. When Yeo Reum faces challenges casting bachelors for the show, she turns to Jae Hoon for help. He reluctantly agrees to join as a contestant, and as they navigate their new roles, unexpected romantic feelings begin to blossom.| S1 Episode 16|
 |[Judge from Hell](https://myflixerz.to/tv/the-judge-from-hell-114451)|A cruel and vicious judge who wields power only for herself, who meets a warm and cheerful detective who puts the victims first.| S1 Episode 12|
-|[Love's in Sight!](https://www.bilibili.tv/en/video/2044673051?bstar_from=bstar-web.ugc-video-detail.related-recommend.all)|A cruel and vicious judge who wields power only for herself, who meets a warm and cheerful detective who puts the victims first.| S1 Episode 12|
+|[Love's in Sight!](https://www.bilibili.tv/en/video/2044673051?bstar_from=bstar-web.ugc-video-detail.related-recommend.all)|A cruel and vicious judge who wields power only for herself, who meets a warm and cheerful detective who puts the victims first.| S1 Episode 10|
 
 
 
